@@ -3,6 +3,9 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-14 12:19 (IR Time)
+- 📥 [HuionTablet_WinDriver_v15.7.6.1858.exe](https://github.com/amirabbasit8/sandbox/raw/main/dl/HuionTablet_WinDriver_v15.7.6.1858.exe) `47.64 MB`
+
 ### 📅 2026-05-14 11:47 (IR Time)
 - 📥 [_MafiaKetab fizik 11 taj.z01](https://github.com/amirabbasit8/sandbox/raw/main/dl/_MafiaKetab%20fizik%2011%20taj.z01) `95.00 MB`
 - 📥 [_MafiaKetab fizik 11 taj.z02](https://github.com/amirabbasit8/sandbox/raw/main/dl/_MafiaKetab%20fizik%2011%20taj.z02) `95.00 MB`
