@@ -3,6 +3,10 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-14 14:33 (IR Time)
+- 📥 [altappinstaller.z01](https://github.com/amirabbasit8/sandbox/raw/main/dl/altappinstaller.z01) `95.00 MB`
+- 🗜️ [altappinstaller.zip](https://github.com/amirabbasit8/sandbox/raw/main/dl/altappinstaller.zip) `25.83 MB`
+
 ### 📅 2026-05-14 12:19 (IR Time)
 - 📥 [HuionTablet_WinDriver_v15.7.6.1858.exe](https://github.com/amirabbasit8/sandbox/raw/main/dl/HuionTablet_WinDriver_v15.7.6.1858.exe) `47.64 MB`
 
