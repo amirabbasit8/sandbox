@@ -3,6 +3,10 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-14 11:22 (IR Time)
+- 📥 [_𝗖𝗜𝗣𝗕𝗢𝗢𝗞𝗦 _ RIAZI 10 IQ _.z01](https://github.com/amirabbasit8/sandbox/raw/main/dl/_%F0%9D%97%96%F0%9D%97%9C%F0%9D%97%A3%F0%9D%97%95%F0%9D%97%A2%F0%9D%97%A2%F0%9D%97%9E%F0%9D%97%A6%20_%20RIAZI%2010%20IQ%20_.z01) `95.00 MB`
+- 🗜️ [_𝗖𝗜𝗣𝗕𝗢𝗢𝗞𝗦 _ RIAZI 10 IQ _.zip](https://github.com/amirabbasit8/sandbox/raw/main/dl/_%F0%9D%97%96%F0%9D%97%9C%F0%9D%97%A3%F0%9D%97%95%F0%9D%97%A2%F0%9D%97%A2%F0%9D%97%9E%F0%9D%97%A6%20_%20RIAZI%2010%20IQ%20_.zip) `57.92 MB`
+
 ### 📅 2026-05-14 11:20 (IR Time)
 - 📥 [_𝗖𝗜𝗣𝗕𝗢𝗢𝗞𝗦 _ RIAZI 11 TAGROBI _.z01](https://github.com/amirabbasit8/sandbox/raw/main/dl/_%F0%9D%97%96%F0%9D%97%9C%F0%9D%97%A3%F0%9D%97%95%F0%9D%97%A2%F0%9D%97%A2%F0%9D%97%9E%F0%9D%97%A6%20_%20RIAZI%2011%20TAGROBI%20_.z01) `95.00 MB`
 - 📥 [_𝗖𝗜𝗣𝗕𝗢𝗢𝗞𝗦 _ RIAZI 11 TAGROBI _.z02](https://github.com/amirabbasit8/sandbox/raw/main/dl/_%F0%9D%97%96%F0%9D%97%9C%F0%9D%97%A3%F0%9D%97%95%F0%9D%97%A2%F0%9D%97%A2%F0%9D%97%9E%F0%9D%97%A6%20_%20RIAZI%2011%20TAGROBI%20_.z02) `95.00 MB`
