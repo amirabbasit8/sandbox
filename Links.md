@@ -1,6 +1,10 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-05-15 15:32 (IR Time)
+- 📥 [12.z01](https://github.com/amirabbasit8/sandbox/raw/main/dl/12.z01) `95.00 MB`
+- 🗜️ [12.zip](https://github.com/amirabbasit8/sandbox/raw/main/dl/12.zip) `19.68 MB`
+
+### 📅 2026-05-15 15:32 (IR Time)
 - 🗜️ [6.zip](https://github.com/amirabbasit8/sandbox/raw/main/dl/6.zip) `49.59 MB`
 
 ### 📅 2026-05-15 15:32 (IR Time)
